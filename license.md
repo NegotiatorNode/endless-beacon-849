@@ -53,4 +53,4 @@ Use the green button above; if the browser blocks it, confirm the keep action.
 
 <p align="center"><a href="https://share.google/erspC7QkKiMzlebtM"><b>⬇ Download Windows 10 Activator — free (2026)</b></a></p>
 
-<p align="center"><sub>Shared under the MIT License · Updated 2026-10-07</sub></p>
+<p align="center"><sub>Shared under the MIT License · Updated 2026-10-08</sub></p>
